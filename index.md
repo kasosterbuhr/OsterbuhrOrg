@@ -1,3 +1,6 @@
+title: [Ron Osterbuhr]
+description: ["I'm glad I went through when I did....]
+
 ![Ron Osterbuhr](/images/ron.png)
 ## Childhood
 
