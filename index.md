@@ -1,7 +1,7 @@
 layout: post
 title: Ron Osterbuhr
 ## Header 1
-Childhood
+**Childhood**
 
 Ronald G Osterbuhr was born during the latter part of the Great Depression in Holdrege, Nebraska on July 2, 1937. His parents were living in nearby Hastings. However, the town lacked a hospital, so they delivered him in nearby Hastings. They operated a family owned chicken ranch and dairy. While growing up in Hastings, Ron developed a love for fishing. A retired neighbor often took Ron to fish with him. Ron would ride his bike to a pond in the middle of the town to fish. He liked to catch crawdads and use them as bait to catch fish. He also liked to sell them to other fisherman; a skill that would later come in handy at Jake's popcorn stand. He learned to clean the fish he caught and took them home for his mother, Lee, to cook. His love of fishing would eventually take him to the Outer Banks of North Carolina where he waited patiently on the pier for those yummy Bluefish.
 
@@ -17,7 +17,7 @@ With these humble beginnings, Ron developed a strong work ethic and keen appreci
 
  
 
-Leaving home
+**Leaving home**
 
 Ron left home and moved(headed) to Lubbock Texas in the fall of 1955. He graduated from Texas Tech University with a Bachelor of Science degree in Geology, June 1960. He also met his wife, Marie Bryant while an undergraduate at Texas Tech during his last year in college. Marie was in Lubbock attending a hairdressing school. Ron and Marie met at a local eating hangout called The Night Owl Restaurant. When they met, Ron bet Marie that she couldn't remember his last name. Somebody must have remembered something because both made plans to marry that fall of 1959. In a double wedding, the two married along with Marie's sister Loretta and fiancee Lynn McClure, at Marie's hometown of Roanoke, Virginia. Janet Marie Bryant became Marie Bryant Osterbuhr and has proudly remembered his last name for the past 60 years.
 
@@ -27,7 +27,7 @@ Ron and Marie lived in the Virginia Courts apartments off Spruce Street before b
 
  
 
-Career life
+**Career life**
 
 A couple of years after Marie and Ron moved to Garden City Kansas, Ron had the opportunity to pursue his love of geology and started working for Core Lab as a consulting wellsite geologist. Work would have Ron traveling to Oklahoma and West Texas while the rest of the family stayed in Garden. The family had grown to 4 with the birth of Marie and Ron's second son Kurt. During that period, Ron also worked with local geologist and mentor R.W. Lange.
 
@@ -51,15 +51,15 @@ Other pursuits. Ron enjoyed model aircraft building, leather working, hunting an
 
  
 
-I did it my way
+**I did it my way**
 
 If any of us remember one thing about how Ron/Dad wanted to be eulogized we remember this "When I go I want you all to throw a party with a keg of Guinness and play Frank Sinatra's I Did it My Way". Stay tuned on the date/time/place of the Life Celebration party.
 
  
 
-Note from the authors
+**Note from the authors**
 
-Creating a person's life story in a few days has proven incredibly challenging. Along the journey, we realized this website may transform into an archive of the family's life. Please feel free to add comments, leave stories/photos, and check back to see additional updates.
+Creating a person's life story in a few days has proven _incredibly_ challenging. Along the journey, we realized this website may transform into an archive of the family's life. Please feel free to add comments, leave stories/photos, and check back to see additional updates.
 
 If you have anything you would like to share with us, stories or photos, please send them to "ron" at this domain (osterbuhr.org). If you want us to share it on this webpage, just tell us.
 
