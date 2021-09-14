@@ -62,7 +62,7 @@ Other pursuits. Ron enjoyed model aircraft building, leather working, hunting an
 If any of us remember one thing about how Ron/Dad wanted to be eulogized we remember this "When I go I want you all to throw a party with a keg of Guinness and play Frank Sinatra's I Did it My Way". Stay tuned on the date/time/place of the Life Celebration party.
 
  
-
+---
 # Note from the authors
 Creating a person's life story in a few days has proven _incredibly_ challenging. Along the journey, we realized this website may transform into an archive of the family's life. Please feel free to add comments, leave stories/photos, and check back to see additional updates.
 
