@@ -1,3 +1,4 @@
+---
 ## Marie Osterbuhr
 ![Marie Osterbuhr](/images/MarieOsterbuhr.PNG)
 
@@ -10,8 +11,8 @@ Marie did a lot for the zoo. Stay tuned on the date/time/place of the Life Celeb
 ![Ron Osterbuhr](/images/8-1959-Summer trip to Roanoke.jpg)
 
 
-
-### Ron Osterbuhr
+---
+## Ron Osterbuhr
 ![Ron Osterbuhr](/images/ron.png)
 ## Childhood
 Ronald G Osterbuhr was born during the latter part of the Great Depression in Holdrege, Nebraska on July 2, 1937. His parents were living in nearby Hastings. However, the town lacked a hospital, so they delivered him in nearby Hastings. They operated a family owned chicken ranch and dairy. While growing up in Hastings, Ron developed a love for fishing. A retired neighbor often took Ron to fish with him. Ron would ride his bike to a pond in the middle of the town to fish. He liked to catch crawdads and use them as bait to catch fish. He also liked to sell them to other fisherman; a skill that would later come in handy at Jake's popcorn stand. He learned to clean the fish he caught and took them home for his mother, Lee, to cook. His love of fishing would eventually take him to the Outer Banks of North Carolina where he waited patiently on the pier for those yummy Bluefish.
