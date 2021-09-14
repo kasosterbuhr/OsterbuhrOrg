@@ -1,3 +1,18 @@
+### Marie Osterbuhr
+![Marie Osterbuhr](/images/ron.png)
+## Childhood
+
+Marie grew up in Roanoke. Went to school in Lubbock, TX where she met Ron, and then spent the rest of her happy married life in Garden City, Kansas.
+
+## Zoo Guru
+
+Marie did a lot for the zoo. Stay tuned on the date/time/place of the Life Celebration party.
+
+![Ron Osterbuhr](/images/8-1959-Summer trip to Roanoke.jpg)
+
+
+
+### Ron Osterbuhr
 ![Ron Osterbuhr](/images/ron.png)
 ## Childhood
 
