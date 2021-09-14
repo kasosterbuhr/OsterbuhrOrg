@@ -7,7 +7,7 @@ Marie grew up in Roanoke. Went to school in Lubbock, TX where she met Ron, and t
 
 ## Zoo Guru
 Marie did a lot for the zoo. Stay tuned on the date/time/place of the Life Celebration party.
-![Ron Osterbuhr](/images/8-1959-Summer trip to Roanoke.jpg)
+![Ron and Marie Osterbuhr](/images/1959SummerRoanoke.jpg)
 
 
 ---
@@ -68,8 +68,6 @@ Creating a person's life story in a few days has proven _incredibly_ challenging
 
 If you have anything you would like to share with us, stories or photos, please send them to "ron" at this domain (osterbuhr.org). If you want us to share it on this webpage, just tell us.
 
-
-![Ron Osterbuhr](/images/8-1959-Summer trip to Roanoke.jpg)
 ![Ron Osterbuhr](/images/99Aug23-001.jpg)
 ![Ron Osterbuhr](/images/1958-1959-Marie-Ron school days in Tx.jpg)
 ![Ron Osterbuhr](/images/1961-1964-slide-059 .jpg)
