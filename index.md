@@ -1,5 +1,5 @@
 ### Marie Osterbuhr
-![Marie Osterbuhr](/images/MarieOsterbuhr.jpg)
+![Marie Osterbuhr](/images/MarieOsterbuhr.PNG)
 ## Childhood
 
 Marie grew up in Roanoke. Went to school in Lubbock, TX where she met Ron, and then spent the rest of her happy married life in Garden City, Kansas.
