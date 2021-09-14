@@ -1,11 +1,10 @@
-### Marie Osterbuhr
+## Marie Osterbuhr
 ![Marie Osterbuhr](/images/MarieOsterbuhr.PNG)
-## Childhood
 
+## Childhood
 Marie grew up in Roanoke. Went to school in Lubbock, TX where she met Ron, and then spent the rest of her happy married life in Garden City, Kansas.
 
 ## Zoo Guru
-
 Marie did a lot for the zoo. Stay tuned on the date/time/place of the Life Celebration party.
 
 ![Ron Osterbuhr](/images/8-1959-Summer trip to Roanoke.jpg)
@@ -15,7 +14,6 @@ Marie did a lot for the zoo. Stay tuned on the date/time/place of the Life Celeb
 ### Ron Osterbuhr
 ![Ron Osterbuhr](/images/ron.png)
 ## Childhood
-
 Ronald G Osterbuhr was born during the latter part of the Great Depression in Holdrege, Nebraska on July 2, 1937. His parents were living in nearby Hastings. However, the town lacked a hospital, so they delivered him in nearby Hastings. They operated a family owned chicken ranch and dairy. While growing up in Hastings, Ron developed a love for fishing. A retired neighbor often took Ron to fish with him. Ron would ride his bike to a pond in the middle of the town to fish. He liked to catch crawdads and use them as bait to catch fish. He also liked to sell them to other fisherman; a skill that would later come in handy at Jake's popcorn stand. He learned to clean the fish he caught and took them home for his mother, Lee, to cook. His love of fishing would eventually take him to the Outer Banks of North Carolina where he waited patiently on the pier for those yummy Bluefish.
 
 As anyone part of the Baby Boom generation has heard, growing up in the 30-40's wasn't exactly easy, especially life on a farm. The Osterbuhr's didn't have running water or electricity for a while, however they did have an outhouse for a bathroom. Ron was fond of pointing out that he preferred Montgomery Ward's catalogs to Sear's as the pages weren't as slick. Standard post-depression hard work and farm-life were the order-of-the day including plenty of morning chores, milking cows, collecting eggs, and walking 10 miles to school. Who could forget the stories of Ron and his buddies collecting discarded pop bottles from the side of the road then selling them for $0.01 each. The goal being to cash in enough of them get them into a Saturday matinee. And then there was the asparagus hustle. Ron took a neighbor's crop, wrapped it in a bundle, and sold to all the neighbors. The "neighbor" was Mrs. Rupp and Ron was able to keep a $0.10 commission for each bundle. Finally, the infamous Jake and the popcorn machine legacy. Jake was a sole proprietor who pimped hot dogs, popcorn, and sodas to all the fans at the local baseball games. Jake made the popcorn in a semi-automatic machine and as Ron put it "salted the heck out of it". Ron would then deliver all the popcorn and return for more. Jake's reply, "go hit 'em with the cokes". Years later, as Clarence became an avid antique collector, he purchased the popcorn machine that Ron served baseball fans popcorn from. It's made a lot of popcorn in Garden City Kansas since.
@@ -31,7 +29,6 @@ With these humble beginnings, Ron developed a strong work ethic and keen appreci
  
 
 ## Leaving home
-
 Ron left home and moved(headed) to Lubbock Texas in the fall of 1955. He graduated from Texas Tech University with a Bachelor of Science degree in Geology, June 1960. He also met his wife, Marie Bryant while an undergraduate at Texas Tech during his last year in college. Marie was in Lubbock attending a hairdressing school. Ron and Marie met at a local eating hangout called The Night Owl Restaurant. When they met, Ron bet Marie that she couldn't remember his last name. Somebody must have remembered something because both made plans to marry that fall of 1959. In a double wedding, the two married along with Marie's sister Loretta and fiancee Lynn McClure, at Marie's hometown of Roanoke, Virginia. Janet Marie Bryant became Marie Bryant Osterbuhr and has proudly remembered his last name for the past 60 years.
 
 The two moved to Roanoke so that Ron could pursue a master's degree in Geochemistry at Virginia Polytechnic Institute. The two lived together at Marie's parents' home on weekends while Ron would stay in Blacksburg during the week. Around that period, silicon crystals were being grown in the geochemistry lab at VPI. Ron often mentioned that he almost decided to pursue that as a passion should he have graduated with the masters in Geochemistry. Ron was drafted (A1A) during the Vietnam War and was granted a deferment for continuing to pursue his college degree. Shortly after that, newlyweds welcomed their 1st son Karl. It was time to quit playing around and start supporting a family. On Marie's mothers' birthday, the 29th of March 1961, Ron, Marie, and baby Karl headed for Garden City Kansas to go to work for Ron's parents in the LPG and fertilizer business. '''
@@ -41,10 +38,7 @@ Ron and Marie lived in the Virginia Courts apartments off Spruce Street before b
  
 
 ## Career life
-
 A couple of years after Marie and Ron moved to Garden City Kansas, Ron had the opportunity to pursue his love of geology and started working for Core Lab as a consulting wellsite geologist. Work would have Ron traveling to Oklahoma and West Texas while the rest of the family stayed in Garden. The family had grown to 4 with the birth of Marie and Ron's second son Kurt. During that period, Ron also worked with local geologist and mentor R.W. Lange.
-
- 
 
 The LPG (propane), anhydrous ammonia, and dry fertilizer business that Ron's father purchased was named Anamo Company, Inc. Anamo had grown to 12 facilities in Kansas, Oklahoma, and the Texas panhandle by the mid-sixties. Along the way, the Osterbuhr's innovated by designing custom fertilizer blends according to the needs of the land. They also thrived among eager competitors. Anamo provided LPG conversions for vehicles as well. Oil and gas work was getting harder to find and crude oil was selling for around $3/bbl in the 60's and early 70's. With Anamo Company thriving and the oil and gas business struggling, it was clear that Ron would shift his focus back to the family business. Around that time, another shift was looming.
 
@@ -65,13 +59,11 @@ Other pursuits. Ron enjoyed model aircraft building, leather working, hunting an
  
 
 ## I did it my way
-
 If any of us remember one thing about how Ron/Dad wanted to be eulogized we remember this "When I go I want you all to throw a party with a keg of Guinness and play Frank Sinatra's I Did it My Way". Stay tuned on the date/time/place of the Life Celebration party.
 
  
 
 ## Note from the authors
-
 Creating a person's life story in a few days has proven _incredibly_ challenging. Along the journey, we realized this website may transform into an archive of the family's life. Please feel free to add comments, leave stories/photos, and check back to see additional updates.
 
 If you have anything you would like to share with us, stories or photos, please send them to "ron" at this domain (osterbuhr.org). If you want us to share it on this webpage, just tell us.
