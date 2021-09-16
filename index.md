@@ -5,7 +5,7 @@ If you have a story or thoughts to share about Ron or Marie, please feel free to
 
 Marie Osterbuhr, 81, peacefully passed away in her home on Monday September 13, 2021, in Garden City, Kansas. The daughter of Elmer and Hazel (Helms) Bryant was born on June 27, 1940, in Roanoke, Virginia. 
 
-Marie grew up in Roanoke, VA, and graduated from [  ]. She later attended [  ] hairdresser school in Lubbock, TX where she met her husband, Ron Osterbuhr. Marie was a selfless volunteer in re-building Lee Richardson Zoo in the late 1970’s and early 80’s. The aviary at the zoo is named after her, as she loved birds and all animals.
+Marie grew up in Roanoke, VA, and graduated from Jefferson Hight School. She later attended hairdresser school in Lubbock, TX where she met her husband, Ron Osterbuhr. Marie was a selfless volunteer in re-building Lee Richardson Zoo in the late 1970’s and early 80’s. The aviary at the zoo is named after her, as she loved birds and all animals.
 
 Marie raised two leopards, two jaguars, two tigers, three thoroughbreds, a stray family of wood ducks, a rescue hawk, her favorite quarter horse named Poncho, and multiple other animal friends. Marie enjoyed and excelled at other endeavors, including photography and craft work. 
 
