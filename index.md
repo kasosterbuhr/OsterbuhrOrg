@@ -1,7 +1,7 @@
 If you have a story or thoughts to share about Ron or Marie, please feel free to email us at webfeedback@osterbuhr.org
 
 # Marie Osterbuhr
-![Marie Osterbuhr](/images/MarieOsterbuhr.PNG)
+![Marie Osterbuhr](/images/MBO_2.jpg)
 
 Marie Osterbuhr, 81, peacefully passed away in her home on Monday September 13, 2021, in Garden City, Kansas. The daughter of Elmer and Hazel (Helms) Bryant was born on June 27, 1940, in Roanoke, Virginia. 
 
