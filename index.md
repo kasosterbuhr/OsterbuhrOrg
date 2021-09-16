@@ -1,6 +1,6 @@
 If you have a story or thoughts to share about Ron or Marie, please feel free to email us at webfeedback@osterbuhr.org
 
-# Marie Osterbuhr
+# Marie Osterbuhr, 27 Jun 1940 - 13 Sep 2001
 ![Marie Osterbuhr](/images/MBO_2.jpg)
 
 Marie Osterbuhr, 81, peacefully passed away in her home on Monday September 13, 2021, in Garden City, Kansas. The daughter of Elmer and Hazel (Helms) Bryant was born on June 27, 1940, in Roanoke, Virginia. 
@@ -18,7 +18,7 @@ There will be a private family service later to be announced. In lieu of flowers
 
 
 ---
-# Ron Osterbuhr
+# Ron Osterbuhr, 2 Jul 1937 - 11 Feb 2020
 ![Ron Osterbuhr](/images/ron.png)
 ## Childhood
 Ronald G Osterbuhr was born during the latter part of the Great Depression in Holdrege, Nebraska on July 2, 1937. His parents were living in nearby Hastings. However, the town lacked a hospital, so they delivered him in nearby Hastings. They operated a family owned chicken ranch and dairy. While growing up in Hastings, Ron developed a love for fishing. A retired neighbor often took Ron to fish with him. Ron would ride his bike to a pond in the middle of the town to fish. He liked to catch crawdads and use them as bait to catch fish. He also liked to sell them to other fisherman; a skill that would later come in handy at Jake's popcorn stand. He learned to clean the fish he caught and took them home for his mother, Lee, to cook. His love of fishing would eventually take him to the Outer Banks of North Carolina where he waited patiently on the pier for those yummy Bluefish.
