@@ -1,8 +1,3 @@
-# Click for Marie's Story
-# Click for Ron's Story
----
-
-
 # Marie Osterbuhr
 ![Marie Osterbuhr](/images/MarieOsterbuhr.PNG)
 
