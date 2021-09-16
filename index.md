@@ -1,3 +1,5 @@
+If you have a story or thoughts to share about Ron or Marie, please feel free to email us at webfeedback@osterbuhr.org
+
 # Marie Osterbuhr
 ![Marie Osterbuhr](/images/MarieOsterbuhr.PNG)
 
