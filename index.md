@@ -3,15 +3,21 @@ If you have a story or thoughts to share about Ron or Marie, please feel free to
 # Marie Osterbuhr, 27 Jun 1940 - 13 Sep 2021
 ![Marie Osterbuhr](/images/MBO_2.jpg)
 
-Marie Osterbuhr, 81, peacefully passed away in her home on Monday September 13, 2021, in Garden City, Kansas. The daughter of Elmer and Hazel (Helms) Bryant was born on June 27, 1940, in Roanoke, Virginia. 
+Marie Bryant Osterbuhr of Roanoke, Virginia, peacefully passed away in her home in Garden City, Kansas, on Monday, September 13, 2021. She was 81.
 
-Marie grew up in Roanoke, VA, and graduated from Jefferson Senior High School. She later attended Isbell’s University of Beauty Culture in Lubbock, TX where she met her husband, Ron Osterbuhr. Marie was a selfless volunteer in re-building Lee Richardson Zoo in the late 1970’s and early 80’s. The aviary at the zoo is named after her, as she loved birds and all animals.
+She was the daughter of Elmer and Hazel (Helms) Bryant and was born on June 27, 1940, in Roanoke, Virginia. Marie grew up in Roanoke, Virginia, and graduated from Jefferson Senior High School. She later attended Isbell’s University of Beauty Culture in Lubbock, Texas, where she met her husband, Ron Osterbuhr.
 
-Marie raised two leopards, two jaguars, two tigers, three thoroughbreds, a stray family of wood ducks, a rescue hawk, her favorite quarter horse named Poncho, and multiple other animal friends. Marie enjoyed and excelled at other endeavors, including photography and craft work. She was a master gardener and active member of the Horticulture Club. She was also a docent at the bison range. 
+Marie was a selfless volunteer in re-building Lee Richardson Zoo in the late 1970s and early 1980s. The aviary at the zoo is named after her, as she loved birds and all animals.
 
-Survivors include her three sons: Karl & Rachel Osterbuhr of Phoenix, AZ, Kurt & Renee Osterbuhr of Garden City, Kansas, Kas & Jamie Osterbuhr of Garden City, Kansas; one sister, Loretta Bryant McClure of Salem, Missouri; one brother David Bryant of Washington D.C.; a sister-in-law Gloria and husband Fred Sanders of Topeka, KS; nephew Greg McClure and wife Dawn of San Antonio, Texas, niece Laura McClure and fiancé Daniel of Washington DC.
+Marie raised two leopards, two jaguars, two tigers, three thoroughbreds, a stray family of wood ducks, a rescue hawk, her favorite quarter horse named Poncho, and multiple other animal friends.
 
-There will be a private family service later to be announced. In lieu of flowers, the family has designated Friends of Lee Richardson Zoo in memoriam. Donations can be made through Price & Sons in honor of Marie’s amazing life and contributions. She will be further memorialized at www.osterbuhr.org.
+Marie enjoyed and excelled at other endeavors, including photography and craft work. She was a master gardener and active member of the Horticulture Club. She was also a docent at the bison range.
+
+Survivors include her three sons, Karl and Rachel Osterbuhr of Phoenix, Arizona, Kurt and Renee Osterbuhr of Garden City, Kansas, and Kas and Jamie Osterbuhr of Garden City, Kansas; one sister, Loretta Bryant McClure of Salem, Missouri; one brother, David Bryant of Washington, D.C.; a sister-in-law, Gloria and husband, Fred Sanders, of Topeka, Kansas; nephew, Greg McClure and wife, Dawn, of San Antonio, Texas; and niece, Laura McClure and fiancé, Daniel, of Washington, D.C.
+
+There will be a private family service at 10 a.m. on Monday, September 20, 2021, at Sherwood Memorial Park, Salem, Virginia. A celebration of life will be held at a later date.
+
+In lieu of flowers, the family has designated Friends of Lee Richardson Zoo in memoriam. Donations can be made through Price and Sons Funeral Home in Garden City, Kansas, in honor of Marie’s amazing life and contributions. She will be further memorialized at www.osterbuhr.org. Online condolences may be shared with the family at www.oakeys.com.
 
 
 ![Ron and Marie Osterbuhr](/images/1959SummerRoanoke.jpg)
